@@ -1,1 +1,0 @@
-# Aparecida-Nutri-o
